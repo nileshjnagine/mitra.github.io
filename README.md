@@ -89,6 +89,8 @@ Day 6: Drive back to Leh from Tso Moriri.
 
 Day 7: Departure.
 
+
+
 Plan 3-
 Day 1: arrival in Leh
 
@@ -105,6 +107,8 @@ Day 6: Pangong lake to Leh
 Day 7: departure from Leh
 
 Note - Distance cover -800km 
+
+
 
 Plan 4-
 Day 1: arrival in Leh, Leh to Kargil
