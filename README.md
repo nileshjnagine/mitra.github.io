@@ -49,7 +49,8 @@ We'll head back to Nubra by the evening where we'll have dinner followed by an o
 
 **Day 5 : Nubra Valley to Pangong (280 Kms, 8 Hrs Drive Approx)**
 
-	_Highlights of the day: Diskit Monastery, Pangong._
+_Highlights of the day: Diskit Monastery, Pangong._
+
    Post-breakfast, we’ll check out from our campsite and head towards Pangong Lake.
 En route, we will visit the Diskit Monastery, popular for the 100ft tall colorful statue of Buddha.
 After paying our reverence at the monastery, we will resume our journey towards Pangong, the iconic lake that has gained popularity ever since featuring in the Bollywood blockbuster movies like 3 Idiots and Jab tak hai Jaan.
@@ -57,7 +58,8 @@ Upon reaching Pangong, we will check in to our cottages where we will have dinne
 
 **Day 6 : Pangong to Leh (230 Kms, 5 hrs Approx)**
 
-	_Highlights of the day: Chang La, Shey Palace, Thiksey Monastery._
+_Highlights of the day: Chang La, Shey Palace, Thiksey Monastery._
+
 After spending a night under the starry skies and waking up to the beautiful view of Pangong lake, we will have breakfast early in the morning.
 Traversing through Chang La Pass (17,800 ft), which is one of the highest passes in the world, we will head back to Leh.
 En route, we will visit the Shey Palace which is popular for its 12-meter-tall gold-gilded statue of Buddha. We will also pay our respects at Thiksey Monastery, which is the largest Monastery in Central Ladakh.
