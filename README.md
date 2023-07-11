@@ -130,7 +130,7 @@ Day 7: departure from Leh
 Note - Distance cover 1250km
 
 
-**What Clothes to Wear in Leh Ladakh in August**
+**What Clothes to Wear in Leh Ladakh during August**
 The temperature in Ladakh in August will vary between 10°C and 25°C (77°F), making it another warm month. This is also the month with the most rainfall in the Leh Ladakh region. It will also rain heavily in the areas around Manali and Kashmir so you must waterproof everything if you were traveling by road.
 
 A heavy warm jacket (windproof and waterproof)
